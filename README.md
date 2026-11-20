@@ -6,5 +6,5 @@
 - 🤔 I’m looking for help with morvox and cruzkanoid. They need love ❤️! 
 - 💬 Ask me about the bicameral mind theory or the Three Laws of Robotics by Asimov
 - 📫 How to reach me: send me a DM on x.com, also follow me on twitch!
-- 😄 Pronouns: he/him
+- 😄 Pronouns: they/them
 - ⚡ Fun fact: I also play flamenco on the guitar! Ask for some songs
